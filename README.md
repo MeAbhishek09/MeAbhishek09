@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Abhishek
-- 👀 I’m interested in grafics designing 
-- 🌱 I’m currently learning grafics designing 
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me insta- MeAbhishek_09 
 - 😄 Pronouns: ...
